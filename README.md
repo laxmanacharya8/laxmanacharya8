@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on  mero care.
+I am currently working on  mero care , student of Kathmandu University
 
 
 ## 🌐 Socials:
